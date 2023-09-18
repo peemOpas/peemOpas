@@ -1,4 +1,4 @@
-Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Peem Opaswarangkul  Software Developer ------------------  I've been studying in this track for 4 years , --> Road to Data scientist  * 🧠  I'm learning Big data
+Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Peem Opaswarangkul  I'm Software Developer   I've been studying in this track for 4 years , --> Road to Data Analyst  * 🧠  I'm learning Big data
 
 ### Skills  
 
